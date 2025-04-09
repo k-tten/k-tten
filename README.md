@@ -1,1 +1,2 @@
-use a typescript file as bait to fish me
+💅
+if u readin this, u a hoe
